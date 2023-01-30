@@ -1,1 +1,0 @@
-# Share Goodness, SharEat Now!
